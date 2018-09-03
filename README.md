@@ -1,4 +1,4 @@
-Hesham Saleh - trivago Tech Camp 2.0 Submission
+Hesham Saleh - trivago Tech Camp 2.0 Submission (selected among 20 people to attend a two week workshop at trivago's HQ in Dusseldorf, Germany)
 
 July 29th, 2018
 __________________________________
